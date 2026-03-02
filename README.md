@@ -3,7 +3,6 @@
 - 🌱 I’m currently obtaining my bachelor's degree in Computer Science at SUNY New Paltz
 - 💞️ I’m looking to collaborate on any project that challenges me, but has a fun result! I love art, games, and movies!
 - 📫 How to reach me: cheyennerossler@gmail.com
-- 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a bachelor's degree in Art History and even interned at the Met in NYC!
 
 <!---
